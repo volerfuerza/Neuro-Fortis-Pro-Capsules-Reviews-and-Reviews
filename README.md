@@ -1,8 +1,3 @@
-<p><strong>⮑❱❱ Product name:</strong><span style="font-weight: 400;"> <a href="https://supplementsme.com/buy/Vitaliflow">Thera Calm CBD Gummies</a></span></p>
-<p><strong>⮑❱❱ Advantages:</strong><span style="font-weight: 400;"> Enhance Strength, Stamina And Vitality</span></p>
-<p><strong>⮑❱❱ Rating: ★★★★★</strong></p>
-<p><strong>⮑❱❱ Side effects:</strong><span style="font-weight: 400;"> NA</span></p>
-<p><strong>⮑❱❱</strong><strong> Availability:</strong><span style="font-weight: 400;"> Online</span></p>
 <p><u></u><span style="font-size: 12pt; font-family: Georgia,serif;">In this world, mental acuity would be as valuable as your muscular strength, and healthy brain function stands at the top of everyone's list. Neuro Fortis Pro is scientifically formulated to provide your body with the nourishment it requires to unleash your peak cognitive abilities. Whether it is to boost memory, sharpen focus, or to protect the brain from the creeping onset of aging, everything you need to know about Neuro Fortis Pro Capsules is covered in this report.</span></p>
 <p><strong><span style="font-size: 12pt; font-family: Georgia,serif;">Official Website:&nbsp;</span></strong><a href="https://supplementsme.com/buy/NeuroFortisPro"><strong><u><span style="color: #1155cc; font-size: 12pt; font-family: Georgia,serif;">https://supplementsme.com/buy/NeuroFortisPro</span></u></strong></a></p>
 <h2><strong><span style="font-size: 16pt; font-family: Arial,sans-serif;">What is it Neuro Fortis Pro?</span></strong></h2>
